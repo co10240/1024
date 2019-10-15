@@ -1,4 +1,4 @@
-![LOGO](https://s2.ax1x.com/2019/10/02/uafypq.png)
+![LOGO](https://lsjfl.top/zb_users/upload/2019/09/201909251569421749543190.png)
 
 
 # 老湿姬导航网地址发布页
